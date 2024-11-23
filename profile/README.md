@@ -1,4 +1,4 @@
-# Sprunki Sinner Edition – Embrace the Dark Melody on PlayMiniGames! 🎶🖤
+# Sprunki Sinner Edition MOD - Play Online Games Latest Version!
 
 # [PLay Sprunki Sinner Edition!](https://apkitech.com/sprunki-sinner-edition/)
 
