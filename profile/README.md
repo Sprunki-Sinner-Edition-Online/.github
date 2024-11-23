@@ -2,6 +2,8 @@
 
 # [PLay Sprunki Sinner Edition!](https://apkitech.com/sprunki-sinner-edition/)
 
+# [PLay Sprunki Sinner Edition!](https://modmeme.com/sprunki-sinner-edition/)
+
 ![sprunki-sinner (1)](https://github.com/user-attachments/assets/d579d1f0-3eff-49b6-a72d-08bf17ccee11)
 
 Join the ultimate music revolution with **Sprunki Sinner Edition**, the most innovative fan-made mod for **Incredibox Sprunki**. Available now on PlayMiniGames, this captivating mod combines creativity, humor, and a touch of darkness to deliver a unique music-mixing experience. Whether you're a dedicated Sprunki fan or new to the series, Sprunki Sinner Edition invites you to explore a world where musical innovation thrives in an atmospheric, haunting backdrop.
@@ -78,3 +80,11 @@ Experience the joy of creating music with **Sprunki Sinner Edition**. Start your
 
 ### **Why Wait? Play Now! 🚀**
 Don’t miss your chance to elevate your music creation skills with Sprunki Sinner Edition. Visit **PlayMiniGames** today and join the music revolution. Let your creativity soar as you explore vibrant soundscapes and create music that’s as unique and expressive as you are!
+
+https://github.com/cricfy-tv-android
+
+https://github.com/cricfree-tv
+
+https://github.com/cool-as-ice-incredibox-game
+
+https://github.com/ppcine
