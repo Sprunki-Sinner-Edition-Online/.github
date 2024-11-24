@@ -80,11 +80,3 @@ Experience the joy of creating music with **Sprunki Sinner Edition**. Start your
 
 ### **Why Wait? Play Now! 🚀**
 Don’t miss your chance to elevate your music creation skills with Sprunki Sinner Edition. Visit **PlayMiniGames** today and join the music revolution. Let your creativity soar as you explore vibrant soundscapes and create music that’s as unique and expressive as you are!
-
-https://github.com/cricfy-tv-android
-
-https://github.com/cricfree-tv
-
-https://github.com/cool-as-ice-incredibox-game
-
-https://github.com/ppcine
