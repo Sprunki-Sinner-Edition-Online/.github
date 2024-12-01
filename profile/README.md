@@ -4,13 +4,11 @@
 
 # [PLay Sprunki Sinner Edition!](https://modmeme.com/sprunki-sinner-edition/)
 
-## [Play Sprunki Phase 2](https://github.com/sprunki-phase-2-online-mod)
+## [Play Sprunki But Gyat](https://modmeme.com/sprunki-gyat/)
 
-## [Play Sprunki Phase 3](https://github.com/sprunki-phase-3-online)
+## [Play Sprunki Gyat](https://apkitech.com/sprunki-but-gyat/)
 
-## [Play Sprunki Phase 4](https://github.com/sprunki-phase-4-online-mod)
-
-## [Play Sprunki Phase 5](https://github.com/sprunki-phase-5-online-mod)
+## [Play SPrunki Phase 6](https://github.com/sprunki-phase-6-mod-online)
 
 ![sprunki-sinner (1)](https://github.com/user-attachments/assets/d579d1f0-3eff-49b6-a72d-08bf17ccee11)
 
