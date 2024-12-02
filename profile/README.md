@@ -4,12 +4,6 @@
 
 # [PLay Sprunki Sinner Edition!](https://modmeme.com/sprunki-sinner-edition/)
 
-## [Play Sprunki But Gyat](https://modmeme.com/sprunki-gyat/)
-
-## [Play Sprunki Gyat](https://apkitech.com/sprunki-but-gyat/)
-
-## [Play SPrunki Phase 6](https://github.com/sprunki-phase-6-mod-online)
-
 ![sprunki-sinner (1)](https://github.com/user-attachments/assets/d579d1f0-3eff-49b6-a72d-08bf17ccee11)
 
 Join the ultimate music revolution with **Sprunki Sinner Edition**, the most innovative fan-made mod for **Incredibox Sprunki**. Available now on PlayMiniGames, this captivating mod combines creativity, humor, and a touch of darkness to deliver a unique music-mixing experience. Whether you're a dedicated Sprunki fan or new to the series, Sprunki Sinner Edition invites you to explore a world where musical innovation thrives in an atmospheric, haunting backdrop.
@@ -86,3 +80,16 @@ Experience the joy of creating music with **Sprunki Sinner Edition**. Start your
 
 ### **Why Wait? Play Now! 🚀**
 Don’t miss your chance to elevate your music creation skills with Sprunki Sinner Edition. Visit **PlayMiniGames** today and join the music revolution. Let your creativity soar as you explore vibrant soundscapes and create music that’s as unique and expressive as you are!
+https://github.com/sprunki-phase-6-mod-online
+
+https://github.com/sprunki-phase-7-online-mod
+
+https://github.com/sprunki-phase-8-online-mod
+
+https://github.com/sprunki-phase-9-online-mod
+
+https://github.com/sprunki-phase-10-online-mod
+
+https://github.com/sprunki-incredibox-phase-11
+
+https://github.com/sprunki-phase-12-mod-online
